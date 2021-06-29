@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SirMonkeMan just call me Axel or Monke
+- 👀 I’m interested in Video Games and Monkism
+- 🌱 I’m currently learning how to return to monke
+- 💞️ I’m looking to collaborate with monke organization
+- 📫 Discord : AΞEl#9610
+- 🐤 twitter : https://twitter.com/axels_official/status/1409828551004594180?s=20
+- 🐵 Monke
